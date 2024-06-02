@@ -7,8 +7,6 @@
 
 💼 Seeking opportunities to leverage my skills and expertise in a dynamic, team-driven environment.
 
-🔍 Open AI, Microsoft, CEOs, Data Science & Machine Learning Professionals: Download my resume/CV, schedule an interview, and visit my profile to explore how I can elevate your team!
-
 Let's connect and drive innovation together. 🌐 #DataScience #MachineLearning #AI #PharmaceuticalIndustry
               
 
